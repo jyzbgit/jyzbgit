@@ -1,1 +1,1 @@
-====https://app.jjzb9.live====
+====[https://app.jjzb9.live]====
